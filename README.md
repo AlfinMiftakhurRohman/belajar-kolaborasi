@@ -7,3 +7,4 @@ ini adalah komit kedua   "sushua adalah istri kedua"
 ini adalah komi ketiga   "miyeon adalah istri ketiga"  
 
 saya ingin makan sate kambing huhu
+saya ingin makan gurita
